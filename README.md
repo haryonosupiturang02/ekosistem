@@ -1,0 +1,2 @@
+# ekosistem
+keseimbangan ekosistem
